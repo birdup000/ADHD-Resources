@@ -1,2 +1,2 @@
 # ADHD-Resources
-If you have ADHD or Neurodivergent please check these awesome projects.
+If you have ADHD or are Neurodivergent please check these awesome projects.
